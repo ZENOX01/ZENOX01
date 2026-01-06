@@ -17,13 +17,14 @@ I like building real projects, learning by breaking things, and improving consis
 - Linux
 
 ## How to reach me
-- YouTube: 
+- YouTube
 - GitHub: you’re already here 🙂
 - Linkden 
 
 # Fun facts about me 
 - I love music (Thinking about making my own music in the future)
 - NGL i am lazy 🤫
+- I like to draw
 - I am a teenager (Is that a fun fact idk)
 
 See Ya All 🫡
