@@ -1,4 +1,4 @@
-# Hi, I'm Zeno'x yo
+# Yoo, I'm Zeno'x 
 
 I’m a developer working on **web development and game development**.  
 I like building real projects, learning by breaking things, and improving consistently.
