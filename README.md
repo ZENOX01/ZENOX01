@@ -27,4 +27,4 @@ I like building real projects, learning by breaking things, and improving consis
 - I like to draw
 - I am a teenager (Is that a fun fact idk)
 
-See Ya All 🫡
+See Ya All On The Top🫡
